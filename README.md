@@ -1,4 +1,4 @@
-###                                                   Hey there.. i am Harish AKA GHOST💀👻�
+###                                                   Hey there.. i am Harish aka GHOST💀👻�
 
 <!--
 **Harish-731/Harish-731** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
